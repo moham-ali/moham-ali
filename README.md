@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @moham-ali
+- 👋 Hi, I’m @moh-sal
 - 👀 I’m interested in honest relationships that last without interests.
 - 🌱 I’m currently learning how to be or not to be .
 - 💞️ I’m looking to collaborate on help Needy people.
